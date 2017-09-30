@@ -19,10 +19,12 @@ We explored the meandering streets of the Gothic quarter and, of course, had del
 
 One particular chain of restaurants, [El Glop](http://elglop.com/), has been a truly amazing gustatory experience. We had two fantastic meals there during our first trip to Barcelona last September. Having had our first tapas at another restaurant, we decided to have our second dinner at El Glop Braseria. New surroundings & unusual city blocks with rounded corners added to the challenge of finding the place. Finally we found it an hour before its closing time, at midnight, and were properly rewarded with a feast. 
 
-
+TODO: include pic of El Glop
 
 Their dessert, tropical paradise, is the best dessert I have had in my entire life!
 
 ![2B2AA28A-CCA0-4073-A3A8-17C128624C59.jpeg](https://steemitimages.com/DQmeDkiyDgc6q25qrWe8UdzAf6qt1K481uwrhs3oP2nPqub/2B2AA28A-CCA0-4073-A3A8-17C128624C59.jpeg)
 
-It is so refreshing to see many restaurants and bars open late at night and people of all ages enjoying themselves on the warm September nights. 
+It is so refreshing to see many restaurants and bars open late at night and people of all ages enjoying themselves on the warm September nights. One particular street, La Rambla De Catalunya, where El Glop Braseria is located, is full of great restaurants and bars situatted in the middle of the street. 
+
+Apart from tapas and beaches, Barcelona is full of unique architecture. It is a creative playground for [Gaudí](https://en.m.wikipedia.org/wiki/Antoni_Gaud%C3%AD), with La Sagrada Família,Casa Milà and....
