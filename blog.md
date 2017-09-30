@@ -11,7 +11,11 @@ The next day, I swam in the Sea and lounged on the beach while @hkjn worked on h
 
 ![9E28D794-01B3-4CFB-B3EB-749EB98AC82B.jpeg](https://steemitimages.com/DQmXtewAMQicSJ4SAWN1CaifKxeNXKLsixY2NRYodj9jAUb/9E28D794-01B3-4CFB-B3EB-749EB98AC82B.jpeg)
 
-We explored the meandering streets of the Gothic quarter and, of course, had delicious tapas and cava. During our exploration, we encountered beautiful street art that represented the spirit of the city. 
+We explored the meandering streets of the Gothic quarter and, of course, had delicious tapas and cava.
+
+TODO: include tapas de mama photo
+
+During our exploration, we encountered beautiful street art that represented the spirit of the city. 
 
 ![44959A2F-CBEC-45A4-A9DF-8CB444D0F165.jpeg](https://steemitimages.com/DQmXBuj8yhKoSCjVDUf3RNGEm9CYqD2yaCFHsYevzip6yHX/44959A2F-CBEC-45A4-A9DF-8CB444D0F165.jpeg)
 
@@ -19,7 +23,7 @@ We explored the meandering streets of the Gothic quarter and, of course, had del
 
 One particular chain of restaurants, [El Glop](http://elglop.com/), has been a truly amazing gustatory experience. We had two fantastic meals there during our first trip to Barcelona last September. Having had our first tapas at another restaurant, we decided to have our second dinner at El Glop Braseria. New surroundings & unusual city blocks with rounded corners added to the challenge of finding the place. Finally we found it an hour before its closing time, at midnight, and were properly rewarded with a feast. 
 
-TODO: include pic of El Glop
+TODO: picture of el glop
 
 Their dessert, tropical paradise, is the best dessert I have had in my entire life!
 
@@ -27,4 +31,10 @@ Their dessert, tropical paradise, is the best dessert I have had in my entire li
 
 It is so refreshing to see many restaurants and bars open late at night and people of all ages enjoying themselves on the warm September nights. One particular street, La Rambla De Catalunya, where El Glop Braseria is located, is full of great restaurants and bars situatted in the middle of the street. 
 
-Apart from tapas and beaches, Barcelona is full of unique architecture. It is a creative playground for [Gaudí](https://en.m.wikipedia.org/wiki/Antoni_Gaud%C3%AD), with La Sagrada Família,Casa Milà and....
+Apart from tapas and beaches, Barcelona is full of unique architecture. It is a creative playground for a famous architecht [Antoni Gaudí](https://en.m.wikipedia.org/wiki/Antoni_Gaud%C3%AD) who was the creative force behind La Sagrada Família, Casa Milà, Gaudí House Museum and other buildings. 
+
+TODO: include pictures of Gaudi buildings.
+
+Tomorrow, we are planning to travel to Alicante by train and stay there a few days. We will definitely be back in Barcelona in the near future and are looking forward to exploring this amazing city further!
+
+
