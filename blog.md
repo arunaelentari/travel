@@ -31,7 +31,7 @@ Their dessert, tropical paradise, is the best dessert I have had in my entire li
 
 It is so refreshing to see many restaurants and bars open late at night and people of all ages enjoying themselves on the warm September nights. One particular street, La Rambla De Catalunya, where El Glop Braseria is located, is full of great restaurants and bars situatted in the middle of the street. 
 
-Apart from tapas and beaches, Barcelona is full of unique architecture. It is a creative playground for a famous architecht [Antoni Gaudí](https://en.m.wikipedia.org/wiki/Antoni_Gaud%C3%AD) who was the creative force behind La Sagrada Família, Casa Milà, Gaudí House Museum and other buildings. 
+Apart from tapas and beaches, Barcelona is full of unique architecture. It is a creative playground for a famous architecht [Antoni Gaudí](https://en.m.wikipedia.org/wiki/Antoni_Gaud%C3%AD) who was the creative force behind La Sagrada Família, Casa Milà, Gaudí House Museum and other works that allure one with their flowing shapes. 
 
 TODO: include pictures of Gaudi buildings.
 
