@@ -2,21 +2,17 @@
 
 A pic of Daenerys
 
-There are two main tourist attractions in Alicante, a historic Mediterranean port on the Costa Blanca in Spain. One of them is a fabulous beach (see my previous post)[https://steemit.com/travel/@arunaelentari/discover-your-inner-fish-in-the-sea-in-alicante]. Another is the Castle of Santa Barbara, a fortification on Mount Benancantil. 
+There are two main tourist attractions in Alicante, a historic Mediterranean port on the Costa Blanca in Spain. One of them is a fabulous beach – see my post "Discover your inner fish in the sea in Alicante". Another is the Castle of Santa Barbara, a fortification on Mount Benancantil.
 
 A pic of the castle
 
-It was constructed under the period of Islamic rule (711 till 1296), with the first reference to the early construction dating back to the 10th century by the Arab chronicler and geographer Al-Razi. It was further shaped by an intense period of fortification in the 16th century and in the 18th century during the Spanish War of Succession. 
+The castle was constructed under the period of Islamic rule (between 711 and 1296 AD), with the first reference to the early construction dating back to the 10th century by the Arab chronicler and geographer Al-Razi. It was further shaped by an intense period of fortification in the 16th century and in the 18th century during the Spanish War of Succession.
 
 A pic of the castle
 
 On our third day in Alicante, having taken a swim in the Sea, @hkjn and I decided it was high time to visit the castle in the late morning. It was a scenic walk with beautiful views.
 
 2-3 pics
-
-While we used the power of our own legs, some people drove or took a bus to see the castle. 
-
-A pic of the bus
 
 The views of the city and the beach were stunning, and the architecture was pleasing to the eye.
 
@@ -26,11 +22,11 @@ I had a tiny companion, my toy Leo, that also enjoyed the views:).
 
 A pic of leo on the castle.
 
-I was taken by complete surprise when I saw a gallery dedicated to the Song of Ice and Fire, a series of epic fantasy novels by George R.R. Martin, that inspired an HBO TV series Game of Thrones. 
+I was taken by complete surprise when I saw a gallery dedicated to the Song of Ice and Fire, a series of epic fantasy novels by George R.R. Martin, that was made into an HBO TV series Game of Thrones. 
 
 In spanish..game of thrones
 
-The artwork was created by (Enrique Jiménez Corominas)[https://corominas.viewbook.com/], an extraordinary Spanish illustrator.
+The artwork was created by [Enrique Jiménez Corominas](https://corominas.viewbook.com/), an extraordinary Spanish illustrator who also made a painting of Daenerys above and below.
 
 Pics of his illustrations
 
@@ -38,7 +34,7 @@ It turns out that many of the scenes from the series were shot in Spain!
 
 A map where things where shot..
 
-There it stood in all its glory, a thing desired much by many kings, the Iron Throne. 
+As we entered the gallery, there stood in all its glory, a thing desired much by many kings, the Iron Throne. 
 
 A pic of the iron throne...
 
