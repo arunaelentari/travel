@@ -1,7 +1,7 @@
 
+# Walk with me in the Buen Retiro Park of Madrid
 
-![C5D0A29C-ADEC-410C-9DC2-F7ADD9C92DCB.jpeg]
-(https://steemitimages.com/DQmSw5GYp23ux3empH7cav9GqLKqHLeG2wwwtcLytVpYLUa/C5D0A29C-ADEC-410C-9DC2-F7ADD9C92DCB.jpeg)
+![C5D0A29C-ADEC-410C-9DC2-F7ADD9C92DCB.jpeg](https://steemitimages.com/DQmSw5GYp23ux3empH7cav9GqLKqHLeG2wwwtcLytVpYLUa/C5D0A29C-ADEC-410C-9DC2-F7ADD9C92DCB.jpeg)
 
 Today, I took a long walk in the Buen Retiro Park, literally 
 translated as the Park of the Pleasant Retreat, located near 
