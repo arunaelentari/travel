@@ -4,7 +4,7 @@
 
 Having spent a week in [Lisbon](https://steemit.com/travel/@arunaelentari/lisbon-san-francisco-s-older-sister), which we visited primarily for [SteemFest](https://steemit.com/steemfest/@arunaelentari/steemfest-in-lisbon-a-crazy-five-day-long-party), @hkjn and I decided to relax for a few days in Porto, the second largest city in Portugal. 
 
-It took us three hours to get there from Lisbon by train. We were surprised by how cold and windy it got in the evening, but during the day it was warm and sunny. The city is extremely charming and a great place for taking long walks up and down. 
+It took us three hours to get there from Lisbon by train. We were surprised by how cold and windy it got in the evening, but during the day it was warm and sunny. The city is very charming and a great place for taking long walks up and down. 
 
 ![B3805A7E-0448-4090-8756-A42A28AA6B97.jpeg](https://steemitimages.com/DQmWU3qGhq7XDeH9BJNo7nbKwVkQEMgDvfo1nG5sdddk3da/B3805A7E-0448-4090-8756-A42A28AA6B97.jpeg)
 
@@ -44,6 +44,14 @@ Port wine or port is a fortified wine produced exclusively in the Douro valley o
 
 ![C303F0F2-CD80-4A53-B9C6-E35A36C98628.jpeg](https://steemitimages.com/DQmP9ed9HTD4r95Mw9ks11b86mrmSvXYbTc8ZqG2emZGXe8/C303F0F2-CD80-4A53-B9C6-E35A36C98628.jpeg)
 
-
 @hkjn and I tried several sorts and liked more aged and more dry port wines. Rose port was way too sweet for us, even in small quantities, but still quite pleasant. 
+
+![E213A568-DA9D-4A9E-A358-73E3476977E8.jpeg](https://steemitimages.com/DQmV4M3vtmyNwZES1WVYvxWJrWXzYG3Nt8We3rEnhJFMdRd/E213A568-DA9D-4A9E-A358-73E3476977E8.jpeg)
+
+Overall, we had a great time in Porto. Good food, good wine (including port, of course!) and lots of exploration by foot.
+
+![C697E62A-0A3A-4499-BBF3-4EB67772BD39.jpeg](https://steemitimages.com/DQmRzbo4jbGpruyoD7iM7qbgk5xKcBFBZ69q1vkjANbuMjK/C697E62A-0A3A-4499-BBF3-4EB67772BD39.jpeg)
+
+
+
 
