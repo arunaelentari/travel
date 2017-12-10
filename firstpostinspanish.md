@@ -1,8 +1,6 @@
-Hola de Barcelona!
+# Hola de Barcelona!
 
 ![001FE13E-0744-491E-AA74-7C7BCF4276A8.jpeg](https://steemitimages.com/DQmVFGzGAGxASu1q6DsjiUvvvRizmmnUJtUv5FZwGgzM7Xi/001FE13E-0744-491E-AA74-7C7BCF4276A8.jpeg)
-
-Hola de Barcelona! 
 
 Me llamo Aruna y ahora vivo en Barcelona con mi marido. Nosotros somos de Suecia. Decidí a escribir en español porque me gustaría conectarme con la comunidad de habla espana en steemit, como @cervantes. Tuve una buena oportunidad en SteemFest en Lisboa este año donde conocí la maravillosa gente de @cervantes, como @oscarcc89, @nelyp y los otros.  Mi español ne es bueno y me disculpo por cometer errores. Un poco sobre mi. 
 
@@ -30,7 +28,7 @@ Y por supuesto, hay mucha jamón iberico, el rey de los cerdos.
 
 ![81347986-DE56-4D01-AEDF-FE5A8772C43B.jpeg](https://steemitimages.com/DQmbGSn5JpJ6WGYDo2eh6KivXLVpYRYLwjGkG6ETx94Zz4V/81347986-DE56-4D01-AEDF-FE5A8772C43B.jpeg)
 
-Creo que es bastante la primera publicación en español. Me gustaría escibir más en el futuro!
+Creo que es bastante para la primera publicación en español. Me gustaría escibir más en el futuro!
 
 ![81DD9249-62D5-4884-BAC4-32A06F45AF97.jpeg](https://steemitimages.com/DQma5h8hXbzX9FGsT6njqFzcetj9Ebx15BbWHVwmLfYgnv9/81DD9249-62D5-4884-BAC4-32A06F45AF97.jpeg)
 
